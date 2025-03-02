@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me selya_shetur@yahoo.com
 - 😄 Pronouns: SHE
-- ⚡ Fun fact:Im a boy mum
+- ⚡ Fun fact: Im a boy mum
   
   
 <!---
