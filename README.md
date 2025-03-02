@@ -1,7 +1,7 @@
 # 👋 Hi,I am Selya Shetur
 - 👀 I’m interested in data analytics and solving problems with data
 - 🌱 I’m currently learning Data analytics with Dahel
-- 💞️ I’m looking to collaborate with tech companies and bringing solutions that will be of great impact. 
+- 💞️ I’m looking to collaborate with tech companies and bring solutions that will be of great impact. 
 - 📫 How to reach me linkedin
 - 😄 Pronouns: SHE
 - ⚡ Fun fact: Im a boy mum
